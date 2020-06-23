@@ -17,4 +17,7 @@ Walter White said:
 
 > Skyler, you are the love of my life, I hope you know that. Walter junior, you're my big man. There are… there are going to be some things, things that you'll come to learn about me in the next few days. I just want you to know that, no matter how it may look, I only had you in my heart. Goodbye.
 
+Another quote:
+> You clearly don’t know who you’re talking to, so let me clue you in. I am not in danger, Skyler. I am the danger. A guy opens his door and gets shot, and you think that of me? No! I am the one who knocks!
+
 <img src="https://abagond.files.wordpress.com/2013/09/walter-white.jpg"/>
