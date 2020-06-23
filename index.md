@@ -1,4 +1,3 @@
 # Breaking Bad - Wie ein Protagonist zum Antagonisten wird
 
-Walter arbeitet als Chemielehrer an einer Highschool in Albuquerque und nebenbei in einer Autowaschanlage, um seine Frau und seinen b$
-
+Walter arbeitet als Chemielehrer an einer Highschool in Albuquerque und muss außerdem nebenbei in einer Autowaschanlage jobben, um mit seiner Frau und seinem behinderten Sohn über die Runden zu kommen. An seinem fünfzigsten Geburtstag erfährt er, dass er an Lungenkrebs erkrankt ist. Dies verändert fortan sein Leben auf drastische Weise. Er begegnet  zufällig seinem früheren Schüler Jessie Pinkman, der anscheinend Drogendealer ist und erkennt, dass mit Drogen viel Geld zu verdienen ist. Er erpresst den Junkie Pinkman und beginnt mit ihm und mit seinem Wissen als Chemiker Meth zu kochen.
