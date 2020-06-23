@@ -12,3 +12,7 @@ Walter arbeitet als Chemielehrer an einer Highschool in Albuquerque und muss au�
 * will Familie nach seinem Tod finanziell versorgt wissen
 * wird Drogenkoch
 * wird immer brutaler und selbstzerstörerisch
+
+Walter White said:
+
+> Skyler, you are the love of my life, I hope you know that. Walter junior, you're my big man. There are… there are going to be some things, things that you'll come to learn about me in the next few days. I just want you to know that, no matter how it may look, I only had you in my heart. Goodbye.
